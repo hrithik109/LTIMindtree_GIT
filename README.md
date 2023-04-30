@@ -1,1 +1,0 @@
-# LTIMindtree_GIT
